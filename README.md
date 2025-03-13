@@ -7,7 +7,7 @@ I'm a passionate and creative product designer with a deep love for building tho
 - Translate ideas into seamless digital experiences
 - Collaborate on innovative projects that push boundaries
 
-🚀 **Current focus:**
+🚀 **Focus:**
 Exploring the world of code-driven design and harnessing the power of technology to bring creative visions to life.
 
 🌐 **Check out my work:**
